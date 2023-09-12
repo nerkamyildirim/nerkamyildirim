@@ -36,7 +36,6 @@ Let's connect and have a chat! You can find me on:
 - 📧 Email: nerkamyildirim@gmail.com
 - 📷 Instagram: [@nev.erkam](https://www.instagram.com/nev.erkam/)
 - 👔 LinkedIn: [N. Erkam Yildirim](https://www.linkedin.com/in/n-erkam-yildirim-a26b56117/)
-- ...
 
 ## Fun Facts 🎉
 
